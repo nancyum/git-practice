@@ -23,7 +23,7 @@ Office hours will **never be held**.
 
 - John Doe, *John Doe's Life* (Cambridge, 2017).
 - Jane Doe, *Jane Doe's Life* (Oxford, 2018).
-- Elmer Elmo, * Elmo's Life* (Yale 2005).
+- Elmer Elmo, *Elmo's Life* (Yale 2005).
 
 ### Week 2 All about books
 
